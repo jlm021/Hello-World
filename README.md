@@ -1,2 +1,3 @@
 # Hello-World
-One analogue 
+One analog
+In A Galactical Collapse
